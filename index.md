@@ -1,1 +1,0 @@
-# Beary good day
